@@ -15,7 +15,7 @@ One of my main goals in life is to harness the power of technology to combat env
 I was born in Pittsburgh, Pennsylvania, but currently reside in Liverpool, UK. My diverse experiences and background have shaped my perspective, fueling my ambition to contribute meaningfully to both local and global communities.
 
 ## 🚀 Explore My Projects
-I’m working on a variety of projects aimed at integrating technology with impactful ideas. Feel free to check them out [here](placeholder.co.uk).
+I’m working on a variety of projects aimed at integrating technology with impactful ideas. Feel free to check them out [here](heathkavanagh.co.uk).
 
 ---
 
